@@ -1,1 +1,1 @@
-# biolog-dictionary.com
+# biology-dictionary.com
